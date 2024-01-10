@@ -61,6 +61,6 @@ Enjoy!
 > Watermark-free renders and assets will only be provided *after* full payment is provided.
 
 - Discord: [antlerss](https://www.discordapp.com/users/529503566033977365)
-- Paypal: [paypal.me/Antlerss](https://www.paypal.me/Antlerss)
+- Cash App: [Antlerssss]([https://](https://cash.app/$Antlerssss)https://cash.app/$Antlerssss)
 
 Stay cute ^.^
